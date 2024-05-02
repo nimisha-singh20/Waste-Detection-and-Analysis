@@ -1,0 +1,6 @@
+![image](https://github.com/nimisha-singh20/Waste-Detection-and-Analysis/assets/108389376/593098da-841a-468a-abb6-548ce95b7aad)
+![image](https://github.com/nimisha-singh20/Waste-Detection-and-Analysis/assets/108389376/313cd5e5-e8f5-40ee-86dc-a1ba78a97644)
+![image](https://github.com/nimisha-singh20/Waste-Detection-and-Analysis/assets/108389376/a4b5809c-8ccf-4b14-a44f-2a5831d690f9)
+![image](https://github.com/nimisha-singh20/Waste-Detection-and-Analysis/assets/108389376/7fef6d94-7995-41de-a29e-024c4180102f)
+![image](https://github.com/nimisha-singh20/Waste-Detection-and-Analysis/assets/108389376/a03fd0a3-308b-487b-b1c3-2757574d4f7d)
+![image](https://github.com/nimisha-singh20/Waste-Detection-and-Analysis/assets/108389376/66e7fdb4-ec7e-44ff-830d-5ae0be9dfc24)
